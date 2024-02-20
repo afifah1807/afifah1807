@@ -1,1 +1,1 @@
-                                              👋 Hi, I’m Afifah
+👋 Hi, I’m Afifah
